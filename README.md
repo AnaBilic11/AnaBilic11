@@ -1,7 +1,6 @@
 - 👋 Hi, I’m AnaBilic
 - 👀 I’m interested in cooking, but I'm coding
 - 🌱 I’m currently learning how to use this
-- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me? abilic23@student.foi.hr
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ChatGPT sets record for fastest-growing user base, reached 100 million monthly active users in January, just two months after launch ! ! !
